@@ -79,7 +79,7 @@
 ## https://wlei6277.github.io/
 
 # Leah
-## 
+## https://docs.google.com/presentation/d/10KLBlW5_awllOkuKLtVIURnJ8shikKNIkyE9jt1Phi0/edit?usp=sharing
 
 # Adam
 ## https://drive.google.com/open?id=1FPwgjxrwsxND68akuVB2GVoQm1UGbiey
@@ -97,3 +97,6 @@
 # Lyss
 ## https://drive.google.com/open?id=13PiQ2CLIAyv_apt-1HusVKognQu2WzII
 ## my website is https://lyssfitz.github.io/
+
+# Josh
+## https://drive.google.com/file/d/191hSG9874Io4aOURqQo19m407bd8xI0m/view?usp=sharing
