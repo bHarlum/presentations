@@ -45,7 +45,7 @@
 ## https://docs.google.com/presentation/d/1hWA0LNbUbLzF7v4sbD-2DVF9fTHrMpSkTnh7XYxzyBw/edit?usp=sharing
 
 # Tuey
-## https://drive.google.com/file/d/1UcLvDWK0aCRnvaDHM32Ocr0OAn4imViX/view?usp=drivesdk
+## https://drive.google.com/file/d/1c2ccz37ifRNgDtyZxqzLRDiz7aSTvfH3/view?usp=sharing
 
 # Sam
 ## https://docs.google.com/presentation/d/1MCfi3oO2fxKIFc2PLSEH3GhyfCNUC6BthViext4X3QI/edit?usp=sharing
@@ -92,7 +92,7 @@
 ## https://docs.google.com/presentation/d/1vd04iqNnlzCs2PN6N_Udu1qxfp-PolP2weK4Q48mp0k/edit?usp=sharing
 
 # O.B 
-## https://docs.google.com/presentation/d/1p7-upVTK0aWHHQ5P9Ld-1DTCHI5sPZFeL-izujSIbqc/edit?usp=sharing
+## https://docs.google.com/presentation/d/1p7-upVTK0aWHHQ5P9Ld-1DTCHI5sPZFeL-izujSIbqc/edit#slide=id.g5512007f73_3_0
 
 # Lyss
 ## https://drive.google.com/open?id=13PiQ2CLIAyv_apt-1HusVKognQu2WzII
