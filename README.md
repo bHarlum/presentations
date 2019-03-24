@@ -85,8 +85,7 @@
 ## https://drive.google.com/open?id=1FPwgjxrwsxND68akuVB2GVoQm1UGbiey
 
 # Dodam
-## https://drive.google.com/file/d/1GncnSfl6NT95jXHYu3ONVZLPNurTCcxl/view?usp=sharing
-## https://docs.google.com/presentation/d/13IsQuRgV4IWXzJ4wpW167UbX7zz7LI3rYXIwW5f6D18/edit?usp=sharing
+## https://www.canva.com/design/DADU2lXCTh0/5m1HJaGOdNJv-mrdSD9-jA/view?presentation#11
 ## https://lapeconera.github.io/
 
 # Shaahil
