@@ -83,3 +83,18 @@
 
 # Adam
 ## https://drive.google.com/open?id=1FPwgjxrwsxND68akuVB2GVoQm1UGbiey
+
+# Dodam
+## https://drive.google.com/file/d/1GncnSfl6NT95jXHYu3ONVZLPNurTCcxl/view?usp=sharing
+## https://docs.google.com/presentation/d/13IsQuRgV4IWXzJ4wpW167UbX7zz7LI3rYXIwW5f6D18/edit?usp=sharing
+## https://lapeconera.github.io/
+
+# Shaahil
+## https://docs.google.com/presentation/d/1vd04iqNnlzCs2PN6N_Udu1qxfp-PolP2weK4Q48mp0k/edit?usp=sharing
+
+# O.B 
+## https://docs.google.com/presentation/d/1p7-upVTK0aWHHQ5P9Ld-1DTCHI5sPZFeL-izujSIbqc/edit?usp=sharing
+
+# Lyss
+## https://drive.google.com/open?id=13PiQ2CLIAyv_apt-1HusVKognQu2WzII
+## my website is https://lyssfitz.github.io/
