@@ -9,7 +9,7 @@
 # Alex B
 ## https://drive.google.com/open?id=152QGtvbElux89_CWwmLaXa5K2uZK9qvr
 
-# Antoella
+# Antonella
 ## https://docs.google.com/presentation/d/1p-THTJXPhQyEPYvhKh9Ziayz83vJlG049CShTCW6Fkg/edit?usp=sharing
 
 ## https://antoonella.github.io/
