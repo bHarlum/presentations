@@ -43,6 +43,7 @@
 
 # Tyson
 ## https://docs.google.com/presentation/d/1hWA0LNbUbLzF7v4sbD-2DVF9fTHrMpSkTnh7XYxzyBw/edit?usp=sharing
+## https://tysoneketone.github.io/src/index.html
 
 # Tuey
 ## https://drive.google.com/file/d/1c2ccz37ifRNgDtyZxqzLRDiz7aSTvfH3/view?usp=sharing
@@ -52,6 +53,7 @@
 
 # Nathaniel
 ## https://docs.google.com/presentation/d/14t4YaOhFeKl6h3tnDVkr2H2oO0dIl7jDubvsUbd7ukM/edit?usp=sharing
+## https://moralesn1.github.io/
 
 # Natasha
 ## https://docs.google.com/presentation/d/1QGBM3vHue603d25eCZKGCTp0Gjseu6ruFIge3qUzTsI/edit?usp=sharing
